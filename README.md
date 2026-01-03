@@ -1,5 +1,5 @@
 # 💫 About Me:
-i am currently pursuing b tech in computer science engineering from kipm college of engineerin and technology gida gorakhpur<br>and recently i am complete machine learning 1 month training in our college campus
+i am currently pursuing b tech in computer science engineering<br> from kipm college of engineering and technology gida gorakhpur<br>and recently i am complete machine learning <br>1 month training in our college campus
 
 
 ## 🌐 Socials:
