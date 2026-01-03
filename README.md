@@ -1,5 +1,5 @@
 # 💫 About Me:
-i am currently pursuing b tech in computer science engineering<br> from kipm college of engineering and technology gida gorakhpur<br>and recently i am complete machine learning <br>1 month training in our college campus
+I am Nitesh Prajapati and i am currently pursuing b tech in computer science Engineering<br> from KIPM College of Engineering and Technology Gida Gorakhpur<br>and recently i am completed Machine learning <br>1 month training in our College Campus
 
 
 ## 🌐 Socials:
